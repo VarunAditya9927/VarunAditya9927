@@ -33,7 +33,7 @@ I'm a Data Analyst with 3+ years of experience turning complex datasets into cle
 Feel free to check out my work or reach out for collaborations, opportunities, or data questions.
 
 📧 varumadala2000@gmail.com  
-🔗 [LinkedIn Profile](https://www.linkedin.com/in/varun-madala-488b53244/) *(Insert your actual link)*
+🔗 [LinkedIn Profile](https://www.linkedin.com/in/varun-madala-488b53244/)
 
 ---
 
